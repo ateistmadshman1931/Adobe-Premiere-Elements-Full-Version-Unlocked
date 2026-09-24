@@ -1,0 +1,1 @@
+# Adobe-Premiere-Elements-Full-Version-Unlocked
